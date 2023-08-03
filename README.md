@@ -1,6 +1,6 @@
 <div align="center">
 
-# Not so soon 😜
+# Not so fast 😜
 
 # ┗|｀O′|┛
 
