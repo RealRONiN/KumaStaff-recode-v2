@@ -1,2 +1,7 @@
-# KumaStaff-recode-v2
-Forked from kumaa88/KumaStaff
+<div align="center">
+
+# Not so soon 😜
+
+# ┗|｀O′|┛
+
+</div>
